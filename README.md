@@ -16,11 +16,15 @@
 ﾒ૦ﾒ૦💋 enhypen n evan is my life  
 🎀 kim sunoo enthusiast  
 
-## fandoms i'm in
+## fandoms i'm in ♡
 
-🌕 enhypen
-🐹 evan  
-✨ epic  
-🏐 haikyuu!!  
-🕵️ spy x family  
+🌕 enhypen (exception) <br>
+🐹 evan<br>
+✨ epic<br>
+🏐 haikyuu!!<br>
+🕵️ spy x family<br>
 ⋆ and many more...
+
+## github stats 📊
+
+![GitHub Stats](https://github-readme-stats.vercel.app/api?username=chipsawenha&show_icons=true)
