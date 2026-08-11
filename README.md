@@ -18,8 +18,7 @@
 
 ## fandoms i'm in
 
-🌕 enhypen - exception
-
+🌕 enhypen ( exception )
 🐹 evan  
 ✨ epic  
 🏐 haikyuu!!  
