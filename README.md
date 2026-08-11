@@ -7,3 +7,11 @@
 ### welcome to my profile
 
 </div>
+
+## about me
+
+🎨 designing & drawing  
+💤 professionally lazy  
+🎧 music lover  
+ﾒ૦ﾒ૦💋 enhypen n evan is my life  
+୨ৎ kim sunoo enthusiast  
