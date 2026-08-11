@@ -24,3 +24,13 @@
 🏐 haikyuu!!<br>
 🕵️ spy x family<br>
 ⋆ and many more...
+
+## my loves ♡
+
+<div align="center">
+
+<img src="sunoo enhypen icon _#sunoo #enhypen #engene_.jfif" width="180">
+<img src="˖⋆࿐໋₊.jfif" width="180">
+<img src="Heeseung ♡︎.jfif" width="180">
+
+</div>
