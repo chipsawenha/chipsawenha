@@ -40,3 +40,7 @@ thanks for stopping by ✈︎
 <p align="center">
   <img src="tải xuống (4).jfif" width="200">
 </p>
+
+<div align="center">
+
+<img src="SUNOO & SUNGHOON.jfif" width="100%">
