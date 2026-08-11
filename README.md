@@ -6,15 +6,15 @@
 
 </div>
 
-## about me
+## ab me
 
 🎨 designing & drawing  
 💤 professionally lazy  
 🎧 music lover  
-ﾒ૦ﾒ૦💋 enhypen n evan is my life  
+ﾒ૦ﾒ૦💋 enhypen n evan is my life
 🎀 kim sunoo enthusiast  
 
-## fandoms i'm in ♡
+## fandoms
 
 🌕 enhypen (exception) <br>
 🐹 evan<br>
@@ -24,7 +24,7 @@
 🕵️ spy x family<br>
 ⋆ and many more...
 
-## my love ♡
+## my love 
 
 <div align="center">
 
