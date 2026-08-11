@@ -18,9 +18,9 @@
 
 ## fandoms i'm in ♡
 
-࣪ ִֶָ☾. enhypen  
-༘⋆ evan  
-𝄞 epic  
+࣪ ִֶָ☾.  enhypen  
+༘⋆  evan  
+𝄞  epic  
 🏐 haikyuu!!  
 🕵️ spy x family  
 ⋆ and many more...
