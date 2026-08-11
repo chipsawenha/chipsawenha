@@ -24,7 +24,3 @@
 🏐 haikyuu!!<br>
 🕵️ spy x family<br>
 ⋆ and many more...
-
-## github stats 📊
-
-![GitHub Stats](https://github-readme-stats.vercel.app/api?username=chipsawenha&show_icons=true)
