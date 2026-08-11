@@ -1,7 +1,7 @@
 <div align="center">
 
-# 👋 hi, i'm chipsawenha
+# waves, i'm chipsawenha!
 
-### welcome to my GitHub profile!
+### welcome to my profile
 
 </div>
