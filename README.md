@@ -11,7 +11,7 @@
 🎨 designing & drawing  
 💤 professionally lazy  
 🎧 music lover  
-ﾒ૦ﾒ૦💋 enhypen n evan is my life
+ﾒ૦ﾒ૦💋 enhypen n evan is my life<br>
 🎀 kim sunoo enthusiast  
 
 ## fandoms
