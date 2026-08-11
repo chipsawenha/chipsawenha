@@ -35,3 +35,5 @@
 <img src="Heeseung ♡︎.jfif" width="180">
 
 </div>
+
+thanks for stopping by ✈︎
