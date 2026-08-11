@@ -29,18 +29,19 @@
 
 <div align="center">
 
-<img src="tải xuống (3).jfif" width="180">
-<img src="˖⋆࿐໋₊.jfif" width="180">
+<img src="tải xuống (3).jfif" width="200">
+<img src="˖⋆࿐໋₊.jfif" width="200">
 ╰┈➤
-<img src="Heeseung ♡︎.jfif" width="180">
+<img src="Heeseung ♡︎.jfif" width="200">
+
 
 </div>
 
-thanks for stopping by ✈︎
-<p align="center">
-  <img src="tải xuống (4).jfif" width="200">
+
+<br>
+<p align="center">thanks for stopping by ✈︎</p>
 </p>
 
 <div align="center">
 
-<img src="SUNOO & SUNGHOON.jfif" width="100%">
+<img src="HHVBu-caEAAw13j.jfif" width="500">
