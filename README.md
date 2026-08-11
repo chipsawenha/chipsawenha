@@ -37,3 +37,6 @@
 </div>
 
 thanks for stopping by ✈︎
+<p align="center">
+  <img src="Sunghoon&Sunoo.jfif" width="200">
+</p>
