@@ -16,11 +16,11 @@
 ﾒ૦ﾒ૦💋 enhypen n evan is my life  
 ୨ৎ  kim sunoo enthusiast  
 
-## fandoms i'm in ♡
+## fandoms i'm in
 
-࣪ ִֶָ☾.  enhypen  
-༘⋆  evan  
-𝄞  epic  
+࣪ ִֶָ☾. enhypen  
+༘⋆ evan  
+𝄞 epic  
 🏐 haikyuu!!  
 🕵️ spy x family  
 ⋆ and many more...
