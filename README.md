@@ -24,7 +24,7 @@
 🕵️ spy x family<br>
 ⋆ and many more...
 
-## my love 
+## my loves
 
 <div align="center">
 
