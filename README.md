@@ -8,16 +8,16 @@
 
 ## ab me
 
-🎨 designing & drawing  
-💤 professionally lazy  
-🎧 music lover  
 ﾒ૦ﾒ૦💋 enhypen n evan is my life<br>
 🎀 kim sunoo enthusiast  
+🎨 designing & drawing  
+💤 professionally lazy  
+🎧 music lover   
 
 ## fandoms
 
-🌕 enhypen (exception) <br>
-🐹 evan<br>
+🌕 engene (exception) <br>
+🐹 ever<br>
 ✨ epic<br>
 🍷 obey me<br>
 🏐 haikyuu!!<br>
