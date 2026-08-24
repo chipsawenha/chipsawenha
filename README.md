@@ -6,6 +6,14 @@
 
 </div>
 
+<div align="center">
+
+<a href="https://youtu.be/MT-4Bk1Lw8g" target="_blank">
+  <img src="https://img.shields.io/badge/▶%20bloody%20paradise-111111?style=for-the-badge&logoColor=white">
+</a>
+
+</div>
+
 ## ab me
 
 ﾒ૦ﾒ૦💋 enhypen n evan is my life<br>
