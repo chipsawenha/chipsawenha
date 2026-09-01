@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="./weverse_2-305182066.jpeg" width="100%">
+<img src="./weverse_3-335918071.jpeg" width="100%">
 
 # waves, call me chip!
 
