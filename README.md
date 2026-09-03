@@ -12,7 +12,7 @@
   <img src="https://img.shields.io/badge/▶%20bloody%20paradise-111111?style=for-the-badge&logoColor=white">
 </a>
 
-## 1, 2, connect!!
+## 🔗 1, 2, connect!! 🔗
 
 💬 discord — `chipsawenha`
 
