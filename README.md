@@ -20,7 +20,8 @@
 
 ## ab me
 
-ﾒ૦ﾒ૦💋 enhypen n evan is my life<br>
+ﾒ૦ﾒ૦💋 enhypen is my life<br>
+❤️‍🔥 evan is my ride or die<br>
 🎀 kim sunoo enthusiast  
 🎨 designing & drawing  
 💤 professionally lazy  
